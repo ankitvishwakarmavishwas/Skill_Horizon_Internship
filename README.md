@@ -1,1 +1,1 @@
-# Skill_Horizon_Internship
+# Skill Horizon Internship
